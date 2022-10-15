@@ -26,7 +26,7 @@ Seaside onsen town near Tokyo
 ##### Nikko   
 pretty town in the mountains north of Tokyo  
   
-## General  
+## General todo
 - Japanese subway / trains during morning rush hour  
 - Ride Yamanote line  
 - Go to karaoke  
