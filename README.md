@@ -11,13 +11,20 @@
 - Harajuku for Fancy buildings (Gucci, designer stuff) and unique Harajuku culture / fashion (usually can see people in Harajuku clothes)  
   
 ## Non-Tokyo places of interest  
-Hiroshima - city has cool vibes, can see where atomic bomb dropped and be depressed at the memorial museum (lol), nearby to Miyajima - island with wild roaming deer and ropeway to shrine at top of mountain  
-Osaka - distinct food, Takoyaki (savory octopus dumpling), Okonomiyaki(Japanese savory pancake), KushiKatsu (fried meat / fish / vegetable skewers). Also has Universal studios Japan with anime attractions  
-Kyoto - lots of old Japanese temples, food  
-Naoshima (art island) - very small island with Art museums and various art exhibits   
-Nara - old Japanese temples and wild deer roaming the town  
-Atami -> Seaside onsen town near Tokyo  
-Nikko -> pretty town in the mountains north of Tokyo  
+##### Hiroshima  
+city has cool vibes, can see where atomic bomb dropped and be depressed at the memorial museum (lol), nearby to Miyajima - island with wild roaming deer and ropeway to shrine at top of mountain  
+##### Osaka   
+distinct food, Takoyaki (savory octopus dumpling), Okonomiyaki(Japanese savory pancake), KushiKatsu (fried meat / fish / vegetable skewers). Also has Universal studios Japan with anime attractions  
+##### Kyoto  
+lots of old Japanese temples, food  
+##### Naoshima (art island)   
+very small island with Art museums and various art exhibits   
+##### Nara  
+ old Japanese temples and wild deer roaming the town  
+##### Atami  
+Seaside onsen town near Tokyo  
+##### Nikko   
+pretty town in the mountains north of Tokyo  
   
 ## General  
 - Japanese subway / trains during morning rush hour  
