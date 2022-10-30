@@ -5,7 +5,8 @@
 - Go to tocho in Shinjuku (Tokyo metropolitan government building, free access to 45th floor and nice view)  
 - Sky tree  
 - Go to Akihabara -> vintage video game stores and anime culture  
-- Go to Ueno park  
+- Go to Ueno park
+- Yanaka Ginza (shopping street, cemetery)
 - Shinjuku golden Gai for drinking  
 - Ikebukuro for Station  
 - Harajuku for Fancy buildings (Gucci, designer stuff) and unique Harajuku culture / fashion (usually can see people in Harajuku clothes)  
