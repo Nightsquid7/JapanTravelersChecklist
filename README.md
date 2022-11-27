@@ -10,7 +10,7 @@
 - Shinjuku golden Gai for drinking  
 - Ikebukuro for Station  
 - Harajuku for Fancy buildings (Gucci, designer stuff) and unique Harajuku culture / fashion (usually can see people in Harajuku clothes)  
-  
+- [Shibuya parco](https://shibuya.parco.jp.e.aiv.hp.transer.com/floor/)
 ## Non-Tokyo places of interest  
 ##### Hiroshima  
 city has cool vibes, can see where atomic bomb dropped and be depressed at the memorial museum (lol), nearby to Miyajima - island with wild roaming deer and ropeway to shrine at top of mountain  
