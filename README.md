@@ -8,7 +8,7 @@
 - Go to Ueno park
 - Yanaka Ginza (shopping street, cemetery)
 - Shinjuku golden Gai for drinking  
-- Ikebukuro for Station  
+- Ikebukuro Station: explore the whole underground labyrinth from east side to west/ sunshine city
 - Harajuku for Fancy buildings (Gucci, designer stuff) and unique Harajuku culture / fashion (usually can see people in Harajuku clothes)  
 - [Shibuya parco](https://shibuya.parco.jp.e.aiv.hp.transer.com/floor/)
 ## Non-Tokyo places of interest  
